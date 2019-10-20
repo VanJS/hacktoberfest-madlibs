@@ -1,4 +1,5 @@
-Driving a car can be fun if you follow this [crazy] advice:
+Driving a car can be fun if you follow this unfun advice:
+
 
 When approaching a [traffic] on the right, always blow your [horn].
 

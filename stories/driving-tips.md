@@ -1,4 +1,4 @@
-Driving a car can be fun if you follow this [adjective] advice:
+Driving a car can be fun if you follow this unfun advice:
 
 When approaching a [noun] on the right, always blow your [noun].
 

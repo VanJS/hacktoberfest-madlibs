@@ -1,11 +1,11 @@
-Driving a car can be fun if you follow this [adjective] advice:
+Driving a car can be fun if you follow this [crazy] advice:
 
-When approaching a [noun] on the right, always blow your [noun].
+When approaching a [traffic] on the right, always blow your [horn].
 
-Before making a [adjective] turn, always stick your [noun].out of the window.
+Before making a [sudden] turn, always stick your [head].out of the window.
 
-Every 2000 miles, have your [noun] inspected and your [noun] checked.
+Every 2000 miles, have your [tire] inspected and your [brake] checked.
 
-When approaching a school, watch out for [adjective] [nouns_plural].
+When approaching a school, watch out for [school] [children].
 
-Above all, drive [adverb] The [noun] you save may be your own!
+Above all, drive [safely] The [time] you save may be your own!

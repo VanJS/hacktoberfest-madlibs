@@ -1,4 +1,4 @@
-It's here, the all-new [last name]. The most luxurious
+It's here, the all-new Lexus. The most luxurious
 [noun] you'll ever drive! The only four-door [noun] that
 comes equipped with dual air [noun]s, power [noun]s,
 and contoured, plush leather [noun]s. And, believe it or not,

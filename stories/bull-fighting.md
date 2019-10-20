@@ -1,7 +1,7 @@
 Bullfighting is a [adjective] sport which is very popular in
 [location]. A bullfighter is called a matador, and his
 equipment consists of a long, sharp [noun] called
-a [spanish word], and a bright red [clothing]. He
+a [spanish word], and a bright red fedora. He
 waves his [clothing] at the bull, which makes the bull
 [adjective] and causes him to charge. The matador then goes
 through a series of [adjective] maneuvers to avoid getting

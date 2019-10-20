@@ -1,6 +1,6 @@
 # Hacktoberfest Madlibs with VanJS
 
-- This repository has short stories within it. Each story has word choices ie: `[noun]`, `[verb]`, `[adjective]`
+- This repository has short stories within the `/stories` directory. Each story has word choices ie: `[noun]`, `[verb]`, `[adjective]`
 
 - Your role is to:
   1. Pick a story

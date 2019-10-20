@@ -1,4 +1,4 @@
-Breathless, wearing her glasses on top of her [body part],
+Breathless, wearing her glasses on top of her nose,
 [person name] rushes into her dressing room on the
 set of "One [noun] to Love." She's wearing a colorful
 [noun] around her [body part], a full-length [noun],

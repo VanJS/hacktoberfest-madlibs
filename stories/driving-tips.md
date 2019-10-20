@@ -1,8 +1,8 @@
-Driving a car can be fun if you follow this [adjective] advice:
+Driving a car can be fun if you follow this amazing advice:
 
 When approaching a [noun] on the right, always blow your [noun].
 
-Before making a [adjective] turn, always stick your [noun].out of the window.
+Before making a left turn, always stick your [noun].out of the window.
 
 Every 2000 miles, have your [noun] inspected and your [noun] checked.
 

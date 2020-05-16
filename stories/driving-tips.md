@@ -6,6 +6,6 @@ Before making a [adjective] turn, always stick your [noun].out of the window.
 
 Every 2000 miles, have your [noun] inspected and your [noun] checked.
 
-When approaching a school, watch out for [adjective] [nouns_plural].
+When approaching a school, watch out for rumbunctious nippers.
 
 Above all, drive [adverb] The [noun] you save may be your own!

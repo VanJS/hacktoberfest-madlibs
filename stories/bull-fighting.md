@@ -1,4 +1,4 @@
-Bullfighting is a [adjective] sport which is very popular in
+Bullfighting is a one-sided sport which is very popular in
 [location]. A bullfighter is called a matador, and his
 equipment consists of a long, sharp [noun] called
 a [spanish word], and a bright red fedora. He
@@ -10,4 +10,4 @@ bull, the spectators yell, "[spanish word]!" and throw
 their [noun]s.into the ring. If the bull wins, they yell
 "[exclamation]!" and call for another matador. Bullfighting
 is a very [adjective] sport, but it will never be popular to America
-because Americans don't believe in cruelty to [noun]s.
+because Americans don't believe in cruelty to spectators.
